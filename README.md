@@ -8,4 +8,5 @@ Meu nome é Tiago Batista de Souza
 
 - ### você pode entrar em contato comigo 📫
 
-- 00001106191109sp@al.educacao.sp.gov.br
+- 00001106191109sp@al.educacao.sp.gov.br.
+- -![](https://media1.tenor.com/m/_kBHclUREHcAAAAC/%C3%A7rpik-kurd%C3%AE.gif)
